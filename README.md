@@ -1,1 +1,0 @@
-# issayevruslan.github.io
